@@ -182,3 +182,62 @@ ER Eddison: Th Worm Ouroboros (1922)
 Burn, Witch, Burn! (1932)
 
 # Additional works
+
+Appendix N Optional
+
+
+* Ambrose Bierce (1891--1912) (at AKS)
+* Arthur Machen (at AKS)
+   * The Hill of Dreams (1987)
+   * The White People (1899)
+   * The Secret Glory (1922)
+* MR James (1904--1928) (at AKS)
+* Lord Dunsany
+   * Time and the Gods (1906)
+   * Don Rodriguez: Chronicles of Shadow Valley/The Chronicles of Rodriguez (1922)
+   * The Charwoman's Shadow (1926)
+* Algernon Blackwood
+   * "The Wendigo"
+   * "The Centaur"
+* William Hope Hodgson (at AKS)
+   * Sargasso Sea Stories (1906--1920)
+   * The House on the Borderland (1912)
+* Edgar Rice Burroughs
+   * The Mucker (1914)
+   * The Land that Time Forgot (1918) ?
+   * The Moon Maid (1923--1925)
+   * Tarzan and the Ant Men (1924)
+   * The War Chief (1927)
+* David Lindsay
+   * A Voyage to Arcturus (1920)
+   * The Haunted Woman (1922)
+* ER Eddison: Zimiamvia (1935--1958)
+* JG Ballard
+   * The Drowned World (1962)
+   * The Atrocity Exhibition (1970)
+   * Crash (1973)
+   * High-Rise (1975)
+   * Empire of the Sun (1984)
+* Barbara Ninde Byfield: The Book of Weird (1967)
+* Katarine Mary Briggs: Folk Tales of Britain (1970)
+* M John Harrison
+   * The Pastel City (1971)
+   * A Storm of Wings (1980)
+   * In Viriconium/The Floating Gods (1982)
+* Samuel R Delany: Return to Neveryon (1979--1987) (at AKS)
+* Gene Wolfe: Book of the New Sun (1980) (at AKS)
+* China Mieville
+   * Bas-Lag (2000-2004)
+   * The City & The City (2009)
+* R Scott Bakker: Prince of Nothing (2003--2017)
+* Undated
+   * Ursula K Le Guin: Earthsea, Hainish Cycle
+   * Octavia Butler
+   * James Branch Cabell: Jurgen
+
+* Arthur Machen (at AKS)
+   * The Great God Pan (1890)
+* Algernon Blackwood
+   * The Willows
+* Robert E Howard: "Pigeons from Hell" (1932)
+* Charles R Saunders: Imaro (1981)
